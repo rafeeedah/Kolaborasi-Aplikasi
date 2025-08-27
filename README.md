@@ -9,6 +9,6 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
-* Rafiidah, [Linkedin](https://www.linkedin.com/in/).
+* Rafiidah, [Linkedin](https://www.linkedin.com/in/rafiiidah).
 
 
